@@ -1,2 +1,0 @@
-# girlwithglasses.github.io
-Coursera
